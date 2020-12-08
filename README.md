@@ -9,7 +9,7 @@ Artigo 2. Seja colaborativo
 
 Artigo 3. Seja leal 
 
-Artigo 4. Sem Spammar aqui (sujeito ao código penal)
+Artigo 4. Sem Spammar aqui (sujeito ao código penal) 
 
 Artigo 5. Os direitos e liberdades que são garantidos por meio desta Constituição deverão ser mantidos pelo esforço constante do povo, que deverá refutar qualquer abuso a liberdade e direitos, e será sempre responsável por utilizá-los para o bem-estar público comum. 
 
