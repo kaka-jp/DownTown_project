@@ -2,20 +2,6 @@
 
 Propriedade legitima da Fish Hook Studios
 
-# Constituição do Projeto DownTown  
-Artigo 1. Respeito a todos e principalmente está constituição 
-
-Artigo 2. Seja colaborativo
-
-Artigo 3. Seja leal 
-
-Artigo 4. Sem Spammar aqui (sujeito ao código penal) 
-
-Artigo 5. Os direitos e liberdades que são garantidos por meio desta Constituição deverão ser mantidos pelo esforço constante do povo, que deverá refutar qualquer abuso a liberdade e direitos, e será sempre responsável por utilizá-los para o bem-estar público comum. 
-
-Artigo 6. Todas as pessoas são iguais perante a lei e não deverá acontecer discriminação nas relações políticas, econômicas e sociais por causa de raça, credo, gênero, posição social ou origem familiar.
-
-Artigo 7. A liberdade de pensamento e consciência não deverá ser violada.
 
 # SketchBook
 
